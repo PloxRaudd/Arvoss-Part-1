@@ -23,3 +23,11 @@ words of your average everyday asshole.  I talk like this because it's my only w
 issue of financial uncertainty?  Because my father-in-law doesn't care about who else he drags down into the hole with his shit, my brother pines for
 being a comedian before he thinks about the pragmatism of financial security, my brother's fiancee does nothing at all, and my mother is mostly 
 invalid due to fibromyalgia.  This leaves the burden of thinking about the future of the place I'm in to me alone, for their sakes.
+
+  Funny, I didn't expect this to be a personal outpouring journal at the time being.  But, I might as well leave this here until a time when I don't
+need to look back on it anymore.  So for anyone else who sees all this, I want you to remember this:
+      "For every hundred-thousand people who complain about their lot, there will be one person who fights to change that. They might never be
+	satisfied, but that person is who the horizon is for. The unknown that everyone else fears? That is where you will find that one, if you ever
+	find them.  We call them heroes.  You call them strangers, adventurers, unknowns; Or, quite possibly worse, demons.  They have seen and been
+	where you don't and won't."
+	
